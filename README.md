@@ -1,5 +1,4 @@
 # Post Facts
-
 Like facts!?
 
 Then BOY DO WE HAVE THE THING FOR YOU!!!
